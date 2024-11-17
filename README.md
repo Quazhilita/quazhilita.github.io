@@ -1,4 +1,5 @@
-# Qua-Zhi-Litá (Quality – 华质 – Qualitá)
+# Qua-Zhi-Litá 
+(Quality – 华质 – Qualitá)
 
 # Quality Matters - Anything Anywhere
 
